@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lubomir.bucko27@gmail.com**
 
-- ⚡ Fun fact **I think I am funny, you no need to agree 🤫**
+- ⚡ Fun fact **someone is morning bird, someone night owl, but I'm hungry pig**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
